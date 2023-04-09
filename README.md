@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @loyalhzt
 - 👀 I’m interested in online games
-- 🌱 I’m currently learning algothrim
-- 💞️ I’m looking to collaborate on (maybe next year )wechat litte program?
 - 📫 How to reach me 13536839073@163.com
 
 <!---
