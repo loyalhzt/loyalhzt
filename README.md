@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @loyalhzt
-- 👀 I’m interested in online games
+- 👀 
 - 📫 How to reach me 13536839073@163.com
 
 <!---
